@@ -1,4 +1,4 @@
-👋 Hi, I’m Aminah Kadiri (@AminahVerse)
+👋 Hi, I’m Aminah Kadiri(KIra)
 🌟 Welcome to my corner of the digital universe!
 
 👀 I’m interested in:
@@ -16,7 +16,7 @@ Administrative support systems for small businesses and entrepreneurs.
 📫 How to reach me:
 Email: aminah.kadiriwrites@gmail.com
 LinkedIn:(https://linkedin.com/in/aminah-kadiri)
-Medium:(https://medium.com/@aminah.kadiriwrites)
+Medium:(https://medium.com/@aminahkwrites)
 😄Pronouns: She/Her
 
 ⚡ Fun fact:
